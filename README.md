@@ -1,1 +1,1 @@
-Ne reactı kardeş düz site işte
+Ne reactı kardeş düz site işte!
